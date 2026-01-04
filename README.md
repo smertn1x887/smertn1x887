@@ -1,4 +1,4 @@
-# 👋 Hi, I'm 1iLumexium7 😇  
+# 👋 Hi, I'm -smertn1x 😇  
 
 ## 💫 About Me  
 💻 Beginner Developer  
