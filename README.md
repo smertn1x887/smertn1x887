@@ -1,4 +1,4 @@
-# 👋 Hi, I'm smertn1x 😇  
+# 👋 Hi, I'm sunr3ei 😇  
 
 ## 💫 About Me  
 💻 Beginner Developer  
